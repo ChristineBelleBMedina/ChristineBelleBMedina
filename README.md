@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @ChristineBelleBMedina
 - 👀 I’m interested in coding.
 - 🌱 I’m currently learning how to code at the moment.
-- 💞️ I’m looking to collaborate on my classmates.
-- 📫 How to reach me: email
+- 💞️ I’m looking to collaborate with my classmates.
+- 📫 How to reach me: Email and Messenger
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I got my hair rebonded but I got bored of it so I got it permed.
 
